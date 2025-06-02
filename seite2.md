@@ -28,4 +28,4 @@ Besuche [Google](https://www.google.com).
 
 Hier ist ein Bild von Uranus aufgenommen vom James Webb Teleskop:
 
-![Bild](https://coachingass.de/wp-content/uploads/2024/04/Die-besten-Sarkasmus-Sprueche-und-Zitate-Lustig-frech-kurz-aber-wahr-und-vor-allem-zum-Totlachen-4-1600x800.jpg)
+![Bild](https://cdn.esawebb.org/archives/images/screen/weic2332a.jpg)
