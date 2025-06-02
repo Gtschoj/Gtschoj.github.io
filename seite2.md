@@ -29,3 +29,5 @@ Besuche [Google](https://www.google.com).
 Hier ist ein Bild von Uranus aufgenommen vom James Webb Teleskop:
 
 ![Bild](https://cdn.esawebb.org/archives/images/screen/weic2332a.jpg)
+
+[Gehe zu Seite 1](index.md)
