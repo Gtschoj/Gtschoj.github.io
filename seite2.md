@@ -26,6 +26,6 @@ Besuche [Google](https://www.google.com).
 
 ## Ein Bild
 
-Hier ist ein Bild von Uranus aufgenommen vom James Webb Rapist Teleskop:
+Hier ist ein Bild von Uranus aufgenommen vom James Webb Teleskop:
 
-![Rapepic](https://www.flickr.com/photos/nasawebbtelescope/53405989488/in/album-72177720305127361)
+![Bild](https://coachingass.de/wp-content/uploads/2024/04/Die-besten-Sarkasmus-Sprueche-und-Zitate-Lustig-frech-kurz-aber-wahr-und-vor-allem-zum-Totlachen-4-1600x800.jpg)
