@@ -26,6 +26,6 @@ Besuche [Google](https://www.google.com).
 
 ## Ein Bild
 
-Hier ist ein Beispielbild:
+Hier ist ein Bild von Uranus aufgenommen vom James Webb Rapist Teleskop:
 
-![Beispielbild](https://via.placeholder.com/150)
+![Rapepic](https://www.flickr.com/photos/nasawebbtelescope/53405989488/in/album-72177720305127361)
